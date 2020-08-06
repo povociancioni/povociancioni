@@ -1,1 +1,1 @@
-# povociancioni simply need to make a work I've been doing go public, so that I can get contact with classical guitar players or someone else interested in this.
+# povociancioni Well ! I plan to make a presentation of my guitar classical creation by showing one as an example. I'd like to type a text to tell a few words to explain myself.
